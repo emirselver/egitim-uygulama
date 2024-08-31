@@ -1,1 +1,1 @@
-#merve kurt dosyası oluşturuldu
+#merve kurt dosyası oluşturuldu..
